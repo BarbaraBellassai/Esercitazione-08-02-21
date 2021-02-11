@@ -1,1 +1,1 @@
-# Esercitazione-08-02-21
+# Esercitazione-08-02-21 Riassunto di magia molto potente!
